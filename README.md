@@ -22,8 +22,8 @@
 ![](https://github-readme-activity-graph.vercel.app/graph?username=Kunsky12&theme=github-dark&hide_border=false)
 
 ### ✍️ Quote to Live By
-> 💡 **“It doesn’t make sense to want something if you’re not willing to do what it takes.  
-> Wanting the result without committing to the process guarantees disappointment.”**  
+> 💡 **“It doesn’t make sense to continue wanting something if you’re not willing to do what it takes to get it.  
+> If you don’t want to live the lifestyle, then release yourself from the desire. To crave the result but not the process, is to guarantee disappointment.”**  
 > 
 > — James Clear
 
